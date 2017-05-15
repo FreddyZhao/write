@@ -1,1 +1,1 @@
-# write
+# Writing is a good habit.
